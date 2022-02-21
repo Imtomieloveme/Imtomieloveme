@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Imtomieloveme.My real name is Regina!
+- 👀 I’m interested in anime,horor and cosplaying!
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on anime reatings!
+- 📫 How to reach me snap not_reginaxc And tik tok thegirlof_yourdreams!PS I dont really post on tik tok.
